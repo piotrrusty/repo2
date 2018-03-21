@@ -1,0 +1,2 @@
+
+niec bloku 1
